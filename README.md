@@ -3,8 +3,9 @@ xvideos免墙版 xnxx免墙版最新地址：
 https://95kitchen.com
 https://95stores.com
 
-官方推荐：青森 翻墙机场
+青森vpn机场
 https://dd52.cccc.gg/auth/register?code=odnAIt
+
 https://api.fanss.vip/auth/register?code=odnAIt
 
 中文资源群（百亿资源合集）
