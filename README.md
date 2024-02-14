@@ -1,12 +1,15 @@
-# xvideos-xnxx-
-xvideos免墙版 xnxx免墙版
 
-最新地址：
+xvideos免墙版 xnxx免墙版最新地址：
 https://95kitchen.com
 https://95stores.com
 
+官方推荐：青森 翻墙机场
+https://dd52.cccc.gg/auth/register?code=odnAIt
+https://api.fanss.vip/auth/register?code=odnAIt
 
-微信交流群（被人恶意举报 新群在创建中）
+中文资源群（百亿资源合集）
+Telegram频道：https://t.me/qunheji
+Telegram频道：https://t.me/+xuGbFJuDTjlmYmNl
 
 
 自动回复新地址的邮箱：
