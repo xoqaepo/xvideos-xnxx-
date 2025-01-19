@@ -19,6 +19,3 @@
   
   
 <h2>自动回复新地址的邮箱：challeng920025@gmail.com</h2>  
-<h2>十年老店 青森翻墙机场</h2>  
-https://dd52.cccc.gg/auth/register?code=odnAIt  </br>
-https://api.fanss.vip/auth/register?code=odnAIt  
